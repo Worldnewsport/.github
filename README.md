@@ -27,3 +27,4 @@ Real Results, Real Glow!
 Thousands of skincare lovers have transformed their skin with The Derma Co 10% Vitamin C Face Serum! It’s time to say goodbye to dull skin and hello to a radiant, youthful glow.
 
 💛 Ready to Glow? Click https://amzn.to/43m9Vrb to Buy Now and Start Your Skincare Transformation!
+https://www.linkedin.com/posts/shafee-ahmed-syed-149586199_understanding-the-key-ingredients-1-vitamin-activity-7301204750077698048-93jS?utm_source=share&utm_medium=member_desktop&rcm=ACoAAC6JfUkBU19IIGsCH0Ko2VFgtQQefRYVPTM
